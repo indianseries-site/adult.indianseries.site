@@ -3,7 +3,6 @@ title: "Indias Got Latent Discarded EP 1 ft AakashGupta AnubhavSinghBassi(720P H
 permalink: "/movie/Indias%20Got%20Latent%20Discarded%20EP%201%20ft%20AakashGupta%20AnubhavSinghBassi(720P%20HD)"
 tags: ["Comedy", "Latent", "Samay Raina, Aakash Gupta, Anubhav Singh Bassi "]
 image: "https://img.lulucdn.com/4cahwxaf89g4_xt.jpg"
-screenshot: "https://img.lulucdn.com/4cahwxaf89g4_xt.jpg"
 show: "Latent"
 channel: "Latent"
 star: ["Samay Raina, Aakash Gupta, Anubhav Singh Bassi "]
@@ -33,7 +32,6 @@ date: "2025-01-01"
 ### 🔥 About This Clip
 
 Indias Got Latent Discarded EP 1 ft AakashGupta AnubhavSinghBassi(720P HD) is a bold and exciting short film featuring Samay Raina, Aakash Gupta, Anubhav Singh Bassi . Enjoy a passionate story filled with desire and drama.
-
-📺 Embed: `<iframe src="https://adult.indianseries.site/movie/Indias%20Got%20Latent%20Discarded%20EP%201%20ft%20AakashGupta%20AnubhavSinghBassi(720P%20HD)"></iframe>`  
+ 
 🖼️ Screenshot:  
 ![Screenshot](https://img.lulucdn.com/4cahwxaf89g4_xt.jpg)
