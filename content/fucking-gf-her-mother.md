@@ -2,7 +2,6 @@
 title: "Fucking GF & Her Mother"
 permalink: "/movie/Fucking%20GF%20%26%20Her%20Mother"
 tags: ["Cheating,Horny", "Ullu", "Jayshree,Suraiya Shaikh"]
-image: "https://shorts.desisins.com/wp-content/uploads/2025/01/maa-ka-naka-jayshree-suriaya-ullu-desisins.com_.jpg"
 show: "Maa Ka Naka"
 channel: "Ullu"
 star: ["Jayshree,Suraiya Shaikh"]
