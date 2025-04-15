@@ -2,7 +2,7 @@
 title: "Shyna with Seeti Maar"
 permalink: "https://adult.indianseries.site/movie/Shyna%20with%20Seeti%20Maar"
 tags: ["Horny", "Voovi", "Shyna Khatri"]
-show: "Seeti Maar Sajanwa"
+show: "Seeti Maar"
 channel: "Voovi"
 star: ["Shyna Khatri"]
 layout: post
@@ -24,7 +24,7 @@ date: "2025-01-01"
 **Channel**: Voovi  
 **Genre**: Horny  
 **Stars**: Shyna Khatri  
-**Show**: Seeti Maar Sajanwa
+**Show**: Seeti Maar
 
 ---
 
