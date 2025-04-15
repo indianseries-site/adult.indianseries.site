@@ -1,6 +1,6 @@
 ---
 title: "Indias Got Latent Discarded EP 1 ft AakashGupta AnubhavSinghBassi(720P HD)"
-permalink: "/movie/Indias%20Got%20Latent%20Discarded%20EP%201%20ft%20AakashGupta%20AnubhavSinghBassi(720P%20HD)"
+permalink: "https://adult.indianseries.site/movie/Indias%20Got%20Latent%20Discarded%20EP%201%20ft%20AakashGupta%20AnubhavSinghBassi(720P%20HD)"
 tags: ["Comedy", "Latent", "Samay Raina, Aakash Gupta, Anubhav Singh Bassi "]
 show: "Latent"
 channel: "Latent"

@@ -1,6 +1,6 @@
 ---
 title: "Fucking GF & Her Mother"
-permalink: "/movie/Fucking%20GF%20%26%20Her%20Mother"
+permalink: "https://adult.indianseries.site/movie/Fucking%20GF%20%26%20Her%20Mother"
 tags: ["Cheating,Horny", "Ullu", "Jayshree,Suraiya Shaikh"]
 show: "Maa Ka Naka"
 channel: "Ullu"
